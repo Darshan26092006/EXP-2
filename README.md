@@ -54,6 +54,9 @@ Tabulation and calculation:
 ![WhatsApp Image 2025-09-22 at 09 25 01_bb277a46](https://github.com/user-attachments/assets/eb503383-ba63-4b29-8ed7-1c7b577e7e1e)
 ![WhatsApp Image 2025-09-22 at 09 25 01_70c71b07](https://github.com/user-attachments/assets/4514d955-bb2e-4bcd-87c8-e5149ddd806c)
 ![WhatsApp Image 2025-09-22 at 09 25 09_de43548d](https://github.com/user-attachments/assets/7348fb0b-7dd1-470e-80df-bb210807a03e)
+<img width="975" height="885" alt="490314420-cf6b879f-5a22-49ea-bcd8-13f1859f4d14" src="https://github.com/user-attachments/assets/feb8ed84-d206-493d-963a-94fefd68f3c7" />
+<img width="1902" height="821" alt="Screenshot 2025-09-12 133135" src="https://github.com/user-attachments/assets/914e511d-ddbe-4512-84ae-f06883e562c6" />
+<img width="1863" height="612" alt="Screenshot 2025-09-12 133153" src="https://github.com/user-attachments/assets/46dcc636-61a7-447d-b422-e72b299e1fba" />
 
 
 Result:
